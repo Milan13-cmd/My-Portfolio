@@ -13,7 +13,7 @@ Hello, I'm Milan, a passionate  student currently pursuing my Bachelor's degree.
 ## Get in Touch
 
 - 🔗 LinkedIn: [LinkedIn Profile](https://www.linkedin.com/in/milan-tamang-95a321277?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app/)
-- 🔗 Instgram: [Your LinkedIn Profile](https://www.instagram.com/milantg14?igsh=cmw3ODZpNmZtenBx/)
+- 🔗 Instgram: [Instagram Profile](https://www.instagram.com/milantg14?igsh=cmw3ODZpNmZtenBx/)
 - 📧 Email: milantg14@gmail.com
 
 ## How You Can Help
